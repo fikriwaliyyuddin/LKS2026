@@ -1,0 +1,2 @@
+# LKS2026
+Untuk LKS 2026 KUDUS
